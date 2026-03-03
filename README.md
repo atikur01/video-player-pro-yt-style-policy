@@ -1,0 +1,1 @@
+# video-player-pro-yt-style-policy
